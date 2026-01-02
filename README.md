@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Data Analyst<br>👯 I’m looking to collaborate on Hiring Managers<br>🤝 I’m looking for help with a job<br>🌱 I’m currently learning Power Bi<br>💬 Ask me about Data<br>⚡ Fun fact 
+🔭 I’m currently working on Data Analyst<br>👯 I’m looking to collaborate on Hiring Managers<br>🤝 I’m looking for help with a job<br>🌱 I’m currently learning Power Bi<br>💬 Ask me about Data<br>⚡ i am a Guitaris 
 
 
 ## 🌐 Socials:
